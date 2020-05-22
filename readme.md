@@ -1,4 +1,4 @@
-# Sean Kross
+# Juan Rodríguez
 
 ### Geography
 
