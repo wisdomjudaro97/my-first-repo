@@ -12,7 +12,5 @@ Two of my favorite books are:
 - *Think and grow rich* by Napoleon Hill
 - *The Dragons of Eden* by Carl Sagan
 
-### Contact
 
-The best way to get in touch with me is [on Instagram] @juandavidrodriguezar
 
